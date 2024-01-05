@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **shivanshshukla0227@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Z0OvCmM4fNIkNrUsvYsih0_1Ba9C9AQd/view?usp=drivesdk](https://drive.google.com/file/d/1Z0OvCmM4fNIkNrUsvYsih0_1Ba9C9AQd/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/14TkNy3A6DS9UutDu2DXCbG03nld8ZbjO/view?usp=drive_link](https://drive.google.com/file/d/14TkNy3A6DS9UutDu2DXCbG03nld8ZbjO/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
